@@ -1,2 +1,2 @@
 # Golden-School
- Nosso projeto visa ajudar estudantes de ensino médio do ensino público, inicialmente na nossa comunidade 
+Alguma vez você já quis fazer um curso online mas se perdeu na grande variedade e na falta de confiabilidade? Nós estamos aqui para lhe ajudar a conseguir o melhor curso,. Unimos diversas instituições de ensino que podem te ajudar a chegar com muito mais domínio e sabedoria, e o melhor de tudo com um certificado. Nosso projeto visa ajudar estudantes de ensino médio do ensino público, inicialmente na nossa comunidade, o Rio de Janeiro. Mas você que se interessou pela proposta, mas não se encaixa no perfil, trouxemos algumas assinaturas com excelentes preços. Confira! 
